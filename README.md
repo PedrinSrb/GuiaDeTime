@@ -1,4 +1,4 @@
-# Guia de Times — Versão com Permissão Android ⚽📍
+# Guia de Times — Versão com Permissão Android 
 
 ## Descrição
 
